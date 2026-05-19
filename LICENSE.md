@@ -1,4 +1,4 @@
-# 
+# advanced Bitdefender Total Security لجهاز الكمبيوتر إضافات هو أفضل Bitdefender Total Security لجهاز الكمبيوتر إضافات مع منع استغلال الثغرات و حماية من برامج الفدية. آمن، موثوق،
 
 
 
